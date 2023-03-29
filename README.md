@@ -1,5 +1,0 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/maine-public/blob/main/cr5402_Public.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/maine-public/blob/main/cr5461_Public.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/maine-public/blob/main/cr5491_Public.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/maine-public/blob/main/video10.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/maine-public/blob/main/video9.jpg)
